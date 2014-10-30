@@ -3,7 +3,7 @@
 Đồng hồ cơ được cấu thành từ những tổ hợp bộ phận tạo nên chuyển động cơ học, những bộ phận này dựa theo những quy luật chuyển động ăn khớp trên những bánh răng bên trong bộ máy mà đồng hồ thực hiện chức năng đo đếm thời gian. Năng lượng ban đầu cung cấp cho những hoạt động của đồng hồ cơ đeo tay có thể là lên dây, tự động (nhận năng lượng từ những chuyển động tự nhiên của tay)…
 
 
-đồng hồ cơ đeo tay <a href=http://www.donghodeotaychinhhang.com/tin-tuc-dong-ho/dong-ho-phu-kien-thoi-trang-duoc-yeu-thich-nhat.html>đồng hồ</a> cơ nam đồng hồ cơ lộ máy đồng hồ cơ giá rẻ đồng hồ cơ
+đồng hồ cơ đeo tay đồng hồ cơ nam đồng hồ cơ lộ máy đồng hồ cơ giá rẻ đồng hồ cơ
 
 Khác với đồng hồ hiện đại như đồng hồ quartz, đồng hồ LED, đồng hồ điện tử, và gần đây nhất là đồng hồ thông minh, sở dĩ những chiếc đồng hồ cơ, đặc biệt là đồng hồ cơ lộ máy được gọi là tác phẩm nghệ thuật của thời gian bởi vì mọi hoạt động và chức năng của nó hoàn toàn là những chuyển động cơ học. Những bộ phận liên kết với nhau hoạt động theo các chu kỳ riêng biệt sau khi được cung cấp một động năng.
 
@@ -85,7 +85,7 @@ Khám phá bộ máy trong những chiếc đồng hồ cơ?
 
 đồng hồ cơ đeo tay đồng hồ cơ nam đồng hồ cơ lộ máy đồng hồ cơ giá rẻ đồng hồ cơ
 
-1 – Dây cót (mainspring): Bộ phận <a href=http://www.donghodeotaychinhhang.com/tin-tuc-dong-ho/dong-ho-tissot-dua-truyen-thong-den-tam-voc-hien-dai.html>đồng hồ tissot</a> tích lũy năng lượng cơ
+1 – Dây cót (mainspring): Bộ phận đồng hồ tissot tích lũy năng lượng cơ
 
 2 – Hệ thống bánh răng (gearchain): Bộ phận phân chia và truyền động
 
@@ -158,7 +158,7 @@ Tất nhiên, bộ phận tourbillon cực kỳ đắt tiền này sẽ không t
  
 Đồng hồ cơ nam giá rẻ – Thị trường của các nhà sản xuất đồng hồ Nhật Bản
 
-Nhật Bản là một đất nước hiện đại và không ngừng phát triển những kỹ thuật đồng hồ hoàn toàn không thua kém các nhà sản xuất đồng hồ danh tiếng đến từ châu Âu. Khác với các nhà sản xuất châu Ấu như <a href=http://www.donghodeotaychinhhang.com/tin-tuc-dong-ho/dong-ho-omega-gia-tri-vinh-cuu-den-tu-dang-cap.html>đồng hồ omega</a> thường chú trọng tính truyền thống của sản phẩm làm thủ công, các nhà sản xuất lớn của Nhật Bản như Seiko, Orient lại áp dụng những công nghệ mới vào sản xuất để tiết kiệm chi phí và giảm giá thành sản phẩm tới mức bình dân hơn.
+Nhật Bản là một đất nước hiện đại và không ngừng phát triển những kỹ thuật đồng hồ hoàn toàn không thua kém các nhà sản xuất đồng hồ danh tiếng đến từ châu Âu. Khác với các nhà sản xuất châu Ấu như đồng hồ omega thường chú trọng tính truyền thống của sản phẩm làm thủ công, các nhà sản xuất lớn của Nhật Bản như Seiko, Orient lại áp dụng những công nghệ mới vào sản xuất để tiết kiệm chi phí và giảm giá thành sản phẩm tới mức bình dân hơn.
 
 Giải thích cho việc đổi mới này bởi vì Nhật Bản từng bước qua thời kỳ nghèo khó khi đại bại ở thế chiến thứ hai, người dân cần những chiếc đồng hồ cơ thật tốt có giá cả thật phải chăng. Tuy giá cả rất phải chăng nhưng đồng hồ cơ giá rẻ Nhật Bản hoàn toàn không thua kém những chiếc đồng hồ cao cấp về độ chính xác lẫn những tính năng nâng cao.
 
